@@ -4,8 +4,8 @@ jjlkkl- 👋 Hi, I’m @anjelaseфів
 - 📫 How to reach me ...
 czx
 <!---XCVasdsadcxv
-anjelase/anjelase is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a lookasdascxz at your changes.
+anjelase/anjelase is a ✨ special ✨ repository because its `README.md` (this file) appearsa on your GitHub profile.
+You can click the Preview link to dtake a lookasdascxz at your changes.dasvc
 --->k
 xzsdfzcxafsxXZ
 as
