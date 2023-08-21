@@ -1,7 +1,7 @@
 scjjlkkl- 👋 Hi, I’m @anjelaseфів
 - 🌱 I’m currently leasdarning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach zxcme ...цукаівzxc
+- 💞️ I’m looking to collaborate on ..ds.
+- 📫 How to reach zxcme ...asdsaукаівzxc
 czxsaddsaва
 <!---XCVczxcasdsadcxvbvnsfdxcvчсм
 anjelase/anjelase is a ✨ special ✨ repository because its `README.md` (this file) appearsa on your GitHub profile.
