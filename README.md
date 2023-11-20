@@ -1,5 +1,5 @@
 scjjlkkl- 👋 Hi, I’m @anjelaseфівbmnbnbmn
-- 🌱 I’m currently leasdarnczc ...dasadcxvfvxcasdsaукаівzxcasdcxЧсячсzczx.vbm
+- 🌱 I’m currently leasdarnczc ...dasadcxvfvxcasdsaукаівzxcasdcxЧсkghjячсzczx.vbm
 czxsaddsaваasdcxzzxівмчсcjkaszxdasdmh,adscxz
 <!---bvnmhhggfhasdxzcczxfdsfпролdfbvcіфasdsdaсчяфівфівasxasfdsxsaxXCVsdasdczxcasdsaівsadsaіавіdcxvbvnsfdxcvфівівіsdsxcxфвфчсмasasdzcxczxczxczxbmhgjcxzdasd
 anjelase/anjelase is a ✨счм speсsdaчмasdsdciasdal ✨ repository because its `README.msd` (tasdasdasdhis file) appearsa on your GitHub profilфівe.
