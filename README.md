@@ -1,5 +1,5 @@
 nfscjjlkkl- 👋 Hi, I’m @afdgdfgdfgdfgdfnjelaseфівbmnbnbmn
-- 🌱 I’m currently leasdarnczc khbhgkhkіавіаaasdasd...dasadcxvfvxcauhohsdsafgdfgукаgdівasdsadsazxмівфсчяcasdcxЧсkghjячсzczx.vbmіфвфівфііфвф,sdaDADASFSDFDSFSDFDFSDGFDslgkhfjsgsfdadfsdcxvsdfsdkyfjsaasdsadrgkgcdghdfgkugfmvhmnbоfdsfdsлsadsadsadasjkhgffhрasdasdasdasdasfgrrrgfsdfsdgdfфівфівфівgfdgdgfjkgf
+- 🌱 I’m currently leasdarnczc asdasdkhbhgkhkіавіаaasdasd...dasadcxvfvxcauhohsdsafgdfgукаgdівasdsadsazxмівфсчяcasdcxЧсkghjячсzczx.vbmіфвфівфііфвф,sdaDADASFSDFDSFSDFDFSDGFDslgkhfjsgsfdadfsdcxvsdfsdkyfjsaasdsadrgkgcdghdfgkugfmvhmnbоfdsfdsлsadsadsadasjkhgffhрasdasdasdasdasfgrrrgfsdfsdgdfфівфівфівgfdgdgfjkgf
 czxsaddsaваasdcxzzxівмчсcjkапавasdcxjretertgfhgzsaіваіваxzcіфвпaszxdaівачмsdmh,adscxzlhkbasdasda
 <!---hm,bzcxxzcadszxczxcdsfdshjhkvфasdsdsdsddsaсsadczdadsadaxчяфівфівasxasfdsxsaxXCVsdassadasdasddddsfsdczxcasdsaівsadsaіавіdcxvbvnsfdxcvфівфівсчяівіsdsxcxфвфчфівіфвсмasasdzcxczxczxczxbmhgjcxzdasd
 anjelase/anjelase is a ✨счм speсsdaчмasdsdciasdal ✨ repository because its `README.msd` (tasdasdasdhis file) appearsa on your GitHub profilфцкауавіа
